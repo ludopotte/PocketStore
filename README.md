@@ -4,4 +4,4 @@ ACCES AU POCKET STORE AU https://31u1.short.gy/pocketstore
 
 NOTICE D'UTILISATION DU POCKET STORE DANS LA RUBRIQUE "Issues"
 
-POCKET STORE SUR FACEBOOK AU https://www.facebook.com/pocketstoreofficiel/
+FACEBOOK DU POCKET STORE AU https://www.facebook.com/pocketstoreofficiel/
