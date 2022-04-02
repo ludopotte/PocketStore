@@ -11,3 +11,5 @@ FACEBOOK DU POCKET STORE AU https://www.facebook.com/pocketstoreofficiel/
 SALON DISCORD DU POCKET STORE AU https://www.discord.gg/7tcYHWhRmk
 
 INSTAGRAM DU POCKET STORE AU https://www.instagram.com/pocketstoreofficiel
+
+POCKET STORE SUR WHATSAPP AU https://wa.me/757841542
