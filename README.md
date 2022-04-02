@@ -12,4 +12,4 @@ SALON DISCORD DU POCKET STORE AU https://www.discord.gg/7tcYHWhRmk
 
 INSTAGRAM DU POCKET STORE AU https://www.instagram.com/pocketstoreofficiel
 
-POCKET STORE SUR WHATSAPP AU https://wa.me/757841542
+WHATSAPP DU POCKET STORE AU https://wa.me/757841542
