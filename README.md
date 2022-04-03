@@ -14,4 +14,4 @@ INSTAGRAM DU POCKET STORE AU https://www.instagram.com/pocketstoreofficiel
 
 WHATSAPP DU POCKET STORE AU https://wa.me/757841542
 
-MAGASIN D'APPLICATIONS ANDROID AU https://31u1.short.gy/pocketappstore
+MAGASIN D'APPLICATIONS ANDROID AU https://31u1.short.gy/pocketapps
